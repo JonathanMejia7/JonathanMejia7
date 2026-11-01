@@ -16,7 +16,7 @@ En mis videos comparto prompts y recursos para resolver problemas de operaciones
 
 ### Dónde encontrarme
 
-[LinkedIn](https://www.linkedin.com/in/jonathanmejia710) · [TikTok](https://www.tiktok.com/@jonathanmejia.ops) · [Instagram](https://www.instagram.com/jonathanmejia.ops/)
+[LinkedIn](https://www.linkedin.com/in/jonathanmejia710) · [Instagram](https://www.instagram.com/jonathanmejia.ops/) · [TikTok](https://www.tiktok.com/@jonathanmejia.ops) 
 
 Estoy abierto a oportunidades remotas o híbridas en operaciones, cadena de suministro y mejora de procesos.
 
